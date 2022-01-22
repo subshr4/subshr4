@@ -1,0 +1,2 @@
+<h1>My goal for this semester</h1>
+<p>Everyone wants to succeed at what they do. Likewise, I want to give my best this semester. I still remember how I completed my Associate degree with really good grades. I transferred to my University last semester and I was not able to do well. Simply, last semester was not as good as I expected. So, This semester I want to work harder to receive good grades and understand whatever I'm learning. This semester I hope to be more responsible, attentive, do extra research, and be better at my assignments, and other task.</p>
